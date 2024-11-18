@@ -1,4 +1,4 @@
-# Fatos Sobre a Clarota. ✮🦇
+# Fatos Sobre a Clara. ✮🦇
 
 
 Amo animais (especialmente gatos pretos).
